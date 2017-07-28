@@ -1,4 +1,9 @@
 # Hello-world
-redefine myself, be a bad code.
+do not go gentle into the good night.
 
-love all, trust a few. think less, live more.
+we are now not that strength, which in old days
+moved earth and heaven
+that which we are, we are
+one equal temper with heroic hearts
+to strive, to seek, to find
+and not to yield
