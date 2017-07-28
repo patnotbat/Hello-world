@@ -1,2 +1,2 @@
 # Hello-world
-redefine myself, be a bad code.
+do not go gentle into the good night.
